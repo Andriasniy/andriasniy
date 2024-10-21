@@ -16,10 +16,6 @@
 
 ![Screenshot_1](https://github.com/user-attachments/assets/1754ef17-4434-40e1-8a77-4811f594e4a3)
 
-![image]()
-![image]()
-![image]()
-
 ---
 
 # **✴️**Work experience
